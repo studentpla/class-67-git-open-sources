@@ -5,3 +5,5 @@ monkey saw the crocodile.
 monkey offered some fruits to the crocodile.
 so monkey and crocodile became good friends.
 everyday crocodile used to come near the tree to eat fruits.
+the fruits were very ta. 
+one day crocodile's wife asked him from are you getting so many fruits.
