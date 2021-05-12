@@ -3,3 +3,4 @@ there was a crocodile in that river.
 one day, crocodile came to the tree to eat some fruits.
 monkey saw the crocodile.
 monkey offered some fruits to the crocodile.
+so monkey and crocodile became good friends.
